@@ -8,4 +8,5 @@ Everybody invest their time somewhere, and depending upon where you invest your 
 Don't go all in on one opportunity at the start. Take multiple risk with smaller investment than one risk with big investment.
 
 
-
+## In life, you either win or learn
+Mistakes means I tried something new
